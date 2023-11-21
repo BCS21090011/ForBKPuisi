@@ -2,32 +2,32 @@
 
 ## Kasih Sayang
 
-Di tepian hati, kasih bersemi,
-Sayang yang murni, bak embun pagi.
-Ia menyapa, lembut dan halus,
-Bagai desiran angin nan lembut.
-
-Cinta berlabuh di pelabuhan jiwa,
-Kasih sayang, laksana bunga yang terbiar,
-Merentang peluk, dalam kehangatan,
-Menghangatkan relung hati yang dingin.
-
-Dalam tatap mata, ada cahaya,
-Menyuluh jalan, di tengah duka.
-Kasih ini bagai pelita,
-Menyinari dalam gelita.
-
-Suara hati, bisikan mesra,
-Sayang sayup, gema di dada.
-Lautan kasih, tak bertepi,
-Dalam dekapan, kita berseri.
-
-Di setiap detik, di setiap nafas,
-Kasih sayang ini, takkan pernah lepas.
-Bagaikan purnama di malam kelam,
-Cahayanya tetap menerangi, tiada hilang.
-
-Kasih sayang, bukan sekadar kata,
-Ia perasaan, yang meresap jiwa.
-Di dalam kasih, kita temukan arti,
-Bahagia bersama, di dalam hati.
+Di tepian hati, kasih bersemi,<br>
+Sayang yang murni, bak embun pagi.<br>
+Ia menyapa, lembut dan halus,<br>
+Bagai desiran angin nan lembut.<br>
+<br><br>
+Cinta berlabuh di pelabuhan jiwa,<br>
+Kasih sayang, laksana bunga yang terbiar,<br>
+Merentang peluk, dalam kehangatan,<br>
+Menghangatkan relung hati yang dingin.<br>
+<br><br>
+Dalam tatap mata, ada cahaya,<br>
+Menyuluh jalan, di tengah duka.<br>
+Kasih ini bagai pelita,<br>
+Menyinari dalam gelita.<br>
+<br><br>
+Suara hati, bisikan mesra,<br>
+Sayang sayup, gema di dada.<br>
+Lautan kasih, tak bertepi,<br>
+Dalam dekapan, kita berseri.<br>
+<br><br>
+Di setiap detik, di setiap nafas,<br>
+Kasih sayang ini, takkan pernah lepas.<br>
+Bagaikan purnama di malam kelam,<br>
+Cahayanya tetap menerangi, tiada hilang.<br>
+<br><br>
+Kasih sayang, bukan sekadar kata,<br>
+Ia perasaan, yang meresap jiwa.<br>
+Di dalam kasih, kita temukan arti,<br>
+Bahagia bersama, di dalam hati.<br>
